@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Singglin
-- 👀 I’m interested in girls who is wife material
+- 👀 I’m interested in: 🤷🏻‍♂️
 - 🌱 I’m currently learning in ACLC IRIGA
 - 💞️ I’m looking to collaborate on ...
 - 📫 you can add me on facebook to reach me "Sean Glenn Macapagat"
